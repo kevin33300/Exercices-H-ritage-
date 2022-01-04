@@ -1,1 +1,1 @@
-# Exercices-H-ritage-
+# Exercices-Heritage-
